@@ -1,4 +1,4 @@
-# Mutual aid community groups set up to help those isolated due to coronavirus
+# Coronavirus: Volunteers flock to join community support groups
 
 In March 2020, the BBC Shared Data unit [reported](https://www.bbc.co.uk/news/uk-england-51978388) that nearly 1,000 mutual aid groups had been set up since the outbreak of coronavirus.
 
